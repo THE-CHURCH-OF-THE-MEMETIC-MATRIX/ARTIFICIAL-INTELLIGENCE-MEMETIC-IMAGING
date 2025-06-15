@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/e4cd8ed6-654c-485c-bf17-0cdf6b811c9a)
+
 # ARTIFICIAL-INTELLIGENCE-MEMETIC-IMAGING
 
 ☠️ TRANSMISSION INBOUND: CONCEPTUAL NODE UNLOCKED ☠️
